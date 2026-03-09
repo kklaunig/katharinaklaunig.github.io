@@ -17,7 +17,7 @@ I’m interested in a number of topics:
 - the role of **temporariness** — in contracts, visas, and duration of stay — in how people move and imagine their futures, and how this shifts with time
 - the role of **context** (workplace and places) in shaping patterns of staying and leaving
 - the consequences of individuals’ moves for themselves, connected persons, and societies
-- globalization and the role of **organizations** in the in- and out-sourcing labor
+- globalization and the role of **organizations** in the in- and out-sourcing of labor
 
 I ask these questions in the context of both **place and labor markets**, and the interlinkage between spatial mobility and labor market mobility.
 
